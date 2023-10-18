@@ -9,5 +9,5 @@ Here are some ideas to get you started:
 - 💬 amo animais
 - 📫 gosto de assistir séries e filmes
 - 😄 sou muito simpatica 
-- ⚡ Fun fact: ...
+- ⚡ gosto de ajudar meu pai na lavoura 
 -->
