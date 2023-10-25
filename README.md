@@ -11,3 +11,4 @@ Here are some ideas to get you started:
 - 😄 sou muito simpatica 
 - ⚡ gosto de ajudar meu pai na lavoura 
 -->
+ ![](https://tenor.com/pt-BR/view/laughing-baby-lol-cracking-up-gif-14677835)
